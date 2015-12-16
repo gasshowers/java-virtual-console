@@ -1,0 +1,1 @@
+Unauthorized use forbidden. You are not authorised so don't use this. No responsibility is accepted for the behaviour of this code if you run it, no warranty or declaration of fitness of use of any kind is provided. Release may be ready some day. All rights reserved, copyright Joseph Cumines 2015.
